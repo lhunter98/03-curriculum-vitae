@@ -16,7 +16,7 @@ Aspiring graphic designer, always learning new things along the way
 
 (2010-2014) Bezručova Second Elementary School, Říčany u Prahy
 
-* **Secundary education:** 
+* **Secondary education:** 
 
 (2014-2018) Michael High School of Advertising and Art, Prague 11
  
