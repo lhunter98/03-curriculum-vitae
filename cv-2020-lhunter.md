@@ -10,13 +10,13 @@ Aspiring graphic designer, always learning new things along the way
 
 ## Education  
 
-* **Primary education:** 
+* **Primary Education:** 
 
 (2005-2010) Slovenská Elementary School, Prague 2 
 
 (2010-2014) Bezručova Second Elementary School, Říčany u Prahy
 
-* **Secondary education:** 
+* **Secondary Education:** 
 
 (2014-2018) Michael High School of Advertising and Art, Prague 11
  
