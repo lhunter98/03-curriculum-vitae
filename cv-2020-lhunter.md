@@ -52,4 +52,4 @@ Aspiring graphic designer, always learning new things along the way
      
 **Personal Interests:** 
 
-Jogging, Tennis, Art, History, Running, Reading and enjoying one beer (It’s never one beer though) 
+Jogging, Tennis, Art, History, Running, Vexillology, Reading + enjoying one beer (It’s never one beer though) 
