@@ -27,4 +27,6 @@ Aspiring graphic designer, willing to learn new things along the way
 
 * (2020-) Creation of a CD cover for an indie rock band called "Booters" 
 
-      *Brief description: The task was to create a cover that would contain the prescribed credentials by the employer. I tried to do my best and incorporated these credentials into a new album cover that had to be characteristic of that of a small rock band. Their new album is called Nightmares and had to contain a stylized moth on their front cover. The creation of the moth was a little trickier than expected, since the employer constantly changed his opinion on how the visual element should look, but we eventually got through it together. The offer is still ongoing and we’re currently discussing on how the back side of the album should look like.*
+     * Brief description: 
+     
+     The task was to create a cover that would contain the prescribed credentials by the employer. I tried to do my best and incorporated these credentials into a new album cover that had to be characteristic of that of a small rock band. Their new album is called Nightmares and had to contain a stylized moth on their front cover. The creation of the moth was a little trickier than expected, since the employer constantly changed his opinion on how the visual element should look, but we eventually got through it together. The offer is still ongoing and we’re currently discussing on how the back side of the album should look like.*
