@@ -12,19 +12,19 @@ Aspiring graphic designer, always learning new things along the way
 
 * **Primary Education:** 
 
-(2005-2010) Slovenská Elementary School, Prague 2 
+  (2005-2010) Slovenská Elementary School, Prague 2 
 
-(2010-2014) Bezručova Second Elementary School, Říčany u Prahy
+  (2010-2014) Bezručova Second Elementary School, Říčany u Prahy
 
 * **Secondary Education:** 
 
-(2014-2018) Michael High School of Advertising and Art, Prague 11
+  (2014-2018) Michael High School of Advertising and Art, Prague 11
  
 * *My brief design story:* 
 
   *During my early stages of life, I would draw simple scribbles on paper, that’s when I got introduced to art. Through later stages of life, I would get introduced to vexillology and its semiotic language and would enroll to a middle school specialized in commercial art, where I gratuated from during our fourth year in 2018. During my last year we were tasked with creating three posters for our final graduation work and these posters were then displayed on Náměstí míru (Peace Square) in Prague. There was a competition where students that made the most creative posters got a special prize and I ended up getting first place. My winning poster was a take on Czech politics at that time and since our main topic for our posters were fateful years in Czech history ending with the number 8 (1938 - Munich agreement, 1948 – Communist takeover, 1968 – Prague Spring, 1988 – the start of the fall of Communism), all of my posters were inspired by these events.* 
   
-(2018-2021) University of Creative Communication (UCC), Prague 4
+  (2018-2021) University of Creative Communication (UCC), Prague 4
 
 ## Previous and ongoing projects: 
 
