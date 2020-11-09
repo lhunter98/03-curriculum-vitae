@@ -3,11 +3,26 @@
 *Hello, my name is Lukas Hunter and I’m currently hunting for new job opportunities*
 
 
-Aspiring graphic designer, willing to learn new things along the way 
+Aspiring graphic designer, always learning new things along the way 
 
-* My place of birth: Prague, Czech Republic (Born to a Czech mother and a Canadian father)
+* My place of birth: Prague, Czech Republic (Born to a Czech mother and a Canadian father) 
+  * *Language skills: Czech, English* 
+
+## Education  
+
+* **Primary education:** 
+
+(2005-2010) Slovenská Elementary School, Prague 2 
+
+(2010-2014) Bezručova Second Elementary School, Říčany u Prahy
+
+* **Secundary education:** 
+
+(2014-2018) Michael High School of Advertising and Art, Prague 11
  
-* My brief design story: During my early stages of life, I would draw simple scribbles on paper, that’s when I got introduced to art. Through later stages of life, I would get introduced to vexillology and its semiotic language and would enroll to a middle school specialized in commercial art, where I gratuated from during our fourth year in 2018. During my last year we were tasked with creating three posters for our final graduation work and these posters were then displayed on Náměstí míru (Peace Square) in Prague. There was a competition where students that made the most creative posters got a special prize and I ended up getting first place. My winning poster was a take on Czech politics at that time and since our main topic for our posters were fateful years in Czech history ending with the number 8 (1938 - Munich agreement, 1948 – Communist takeover, 1968 – Prague Spring, 1988 – the start of the fall of Communism), all of my posters were inspired by these events. 
+* *My brief design story:* 
+
+  *During my early stages of life, I would draw simple scribbles on paper, that’s when I got introduced to art. Through later stages of life, I would get introduced to vexillology and its semiotic language and would enroll to a middle school specialized in commercial art, where I gratuated from during our fourth year in 2018. During my last year we were tasked with creating three posters for our final graduation work and these posters were then displayed on Náměstí míru (Peace Square) in Prague. There was a competition where students that made the most creative posters got a special prize and I ended up getting first place. My winning poster was a take on Czech politics at that time and since our main topic for our posters were fateful years in Czech history ending with the number 8 (1938 - Munich agreement, 1948 – Communist takeover, 1968 – Prague Spring, 1988 – the start of the fall of Communism), all of my posters were inspired by these events.* 
 
 ## Previous and ongoing projects: 
 
@@ -33,4 +48,4 @@ Aspiring graphic designer, willing to learn new things along the way
      
 **Personal Interests:** 
 
-Jogging, Tennis, Art, History, Running, Reading and enjoying one beer (It’s never one beer though)
+Jogging, Tennis, Art, History, Running, Reading and enjoying one beer (It’s never one beer though) 
