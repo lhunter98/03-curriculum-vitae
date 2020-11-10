@@ -42,7 +42,7 @@ Aspiring graphic designer, always learning new things along the way
 
 * (2020) Design for poster and logo for Bollywood film festival in Prague
 
-**Individual tasks** 
+**Individual tasks:** 
 
 * (2020-) Creation of a CD cover for an indie rock band called "Booters" 
 
