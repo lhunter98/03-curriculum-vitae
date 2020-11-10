@@ -24,9 +24,9 @@ Aspiring graphic designer, always learning new things along the way
 
 * **Primary Education:** 
 
-  (2005-2010) Slovenská Elementary School, Prague 2 
+  (2010-2014) Bezručova Second Elementary School, Říčany u Prahy 
 
-  (2010-2014) Bezručova Second Elementary School, Říčany u Prahy
+  (2005-2010) Slovenská Elementary School, Prague 2 
   
 ## Previous and ongoing projects: 
 
