@@ -27,9 +27,7 @@ Aspiring graphic designer, always learning new things along the way
   (2005-2010) Slovenská Elementary School, Prague 2 
 
   (2010-2014) Bezručova Second Elementary School, Říčany u Prahy
- 
-* *My brief design story:* 
-
+  
 ## Previous and ongoing projects: 
 
 * (2017) Team work on creating a visual brochure and its communication for a Czech health institute used for commercial purposes
