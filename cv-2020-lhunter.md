@@ -32,7 +32,7 @@ Aspiring graphic designer, always learning new things along the way
 
 * (2017) Team work on creating a visual brochure and its communication for a Czech health institute used for commercial purposes
 
-**Working on tasks through the school agency:**
+**Working on tasks through the UCC school agency:**
 
 * (2019) Teamwork on a visual style for a book reading festival called the “Festival of Reading on a Train” together with ideas for public and visual communication, promoted by the school. 
 
