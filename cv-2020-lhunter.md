@@ -34,6 +34,10 @@ Aspiring graphic designer, always learning new things along the way
 
 **Working on tasks through the UCC school agency:**
 
+* (2018) Working on a logo for Bookafe
+
+* (2018) Working on a logo for Blanka Matragi
+
 * (2019) Teamwork on a visual style for a book reading festival called the “Festival of Reading on a Train” together with ideas for public and visual communication, promoted by the school. 
 
 * (2019) Teamwork on a “facelift” design for “Koli” lemonade company – logo and graphic visual representation together with ideas on how such visual style should be marketed in public and for public
