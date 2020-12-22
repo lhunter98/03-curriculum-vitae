@@ -40,6 +40,8 @@ Aspiring graphic designer, always learning new things along the way
 
 * (2019) Teamwork on a visual style for a book reading festival called the “Festival of Reading on a Train” together with ideas for public and visual communication, promoted by the school. 
 
+* (2019) Working on a logo for a natural outdoor park
+
 * (2019) Teamwork on a “facelift” design for “Koli” lemonade company – logo and graphic visual representation together with ideas on how such visual style should be marketed in public and for public
 
 * (2020) Teamwork for Kolonaoperák company on creating a mascot and new visual redesign of the company together with its own unique marketing communication 
